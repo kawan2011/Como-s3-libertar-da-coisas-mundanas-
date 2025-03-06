@@ -1,1 +1,1 @@
-# Como-s3-libertar-da-coisas-mundanas-
+# Como-se-libertar-da-coisas-mundanas-
